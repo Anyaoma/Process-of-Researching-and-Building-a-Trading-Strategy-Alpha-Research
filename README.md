@@ -1,0 +1,1 @@
+# Process-of-Researching-and-Building-a-Trading-Strategy-Alpha-Research
